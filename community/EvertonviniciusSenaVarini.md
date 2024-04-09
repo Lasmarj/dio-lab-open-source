@@ -7,6 +7,7 @@ ceiramente, então tive que vender meu netbook, depois disso passaram se os anos
 entre educação especial, pedagogia, design gráfico, lingua portuguesa e a área de TI, especificamente ciência da computação(eu estava maravilhado com a programação), então
 minha paixão por computadores falou mais alto, fiz o vestibular para computação na univesp, e passei em 3° lugar, desde então venho estudando e ficando cada vez mais apaixo-
 nado pela tecnologia, essa dádiva dada por Deus.
+Ok
 
 ## Habilidades
 
